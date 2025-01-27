@@ -1,4 +1,4 @@
-# Sikkim Game - Login & Register Now
+# Sikkim Game
 
 ## 👉👉 [Sikkim Game Join Now](https://www.google.com)
 
